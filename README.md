@@ -1,2 +1,0 @@
-# lockpickers
-amsterdamse politie
